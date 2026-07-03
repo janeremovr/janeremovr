@@ -1,16 +1,27 @@
-## Hi there 👋
 
-<!--
-**janeremovr/janeremovr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+taraㅤorㅤdreamyㅤꪆৎ ˚⋅ㅤgirlthingㅤwhoㅤcan ' tㅤbㅤnormalㅤaboutㅤJR
+
+sheㅤ⸝ㅤitㅤ✚ㅤfemmeㅤ🩸ㅤperma ー agereㅤbㅤkindㅤtoㅤme
+
+sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
+
+[rentry](https://rentry.co/dreamflasher)
+ㅤㅤ(⇀‸↼ ") ..
+ㅤㅤ[twitter](https://twitter.com/princessremover)
+
+</div>
+
+
+<p align="center"><img width="600" src="https://github.com/user-attachments/assets/64a3085a-eecd-4c31-9670-620be9f7833f"></p>
+
+
+
+
+
+<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=rh2oqnubvlstyhpsucgotorqs">
+  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=rh2oqnubvlstyhpsucgotorqs" alt="Data Card for Spotify">
+</a>
+
