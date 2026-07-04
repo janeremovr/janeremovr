@@ -8,7 +8,7 @@ sheㅤ⸝ㅤitㅤ✚ㅤfemmeㅤ🩸ㅤperma ー agereㅤbㅤkindㅤtoㅤme
 
 sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
 
-[rentry](https://rentry.co/dreamflasher)
+[rentryㅤext](https://rentry.co/howtolie)
 ㅤㅤ(⇀‸↼ ") ..
 ㅤㅤ[twitter](https://twitter.com/princessremover)
 
