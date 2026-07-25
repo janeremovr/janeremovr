@@ -2,9 +2,7 @@
 
 <div align="center">
 
-taraㅤorㅤdreamyㅤꪆৎ ˚⋅ㅤgirlthingㅤwhoㅤcan ' tㅤbㅤnormalㅤaboutㅤJR
-
-sheㅤ⸝ㅤitㅤ✚ㅤfemmeㅤ🩸ㅤperma ー agereㅤbㅤkindㅤtoㅤme
+herㅤaegyoㅤisㅤsoㅤf*ckingㅤRefreshingㅤ𓈒
 
 sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
 
@@ -15,7 +13,15 @@ sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
 </div>
 
 
-<p align="center"><img width="600" src="https://github.com/user-attachments/assets/64a3085a-eecd-4c31-9670-620be9f7833f"></p>
+
+
+
+
+
+
+<div align="center">
+  <video src="https://github.com/user-attachments/assets/6ab69952-163d-496c-8b89-2ecb6283c4d3" width="400" />
+</div>
 
 
 
