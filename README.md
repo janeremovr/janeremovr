@@ -1,5 +1,9 @@
 
 
+
+
+
+
 <div align="center">
 
 herㅤaegyoㅤisㅤsoㅤf*ckingㅤRefreshingㅤ𓈒
@@ -20,7 +24,7 @@ sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
 
 
 <div align="center">
-  <video src="https://github.com/user-attachments/assets/c193ca62-5cf6-4245-896e-4c0959589ee2" width="400" />
+  <video src="https://github.com/user-attachments/assets/46158a9f-f7fc-447c-b198-20c60a37945c" width="400" />
 </div>
 
 
