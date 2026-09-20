@@ -14,7 +14,7 @@ janeㅤremover ' sㅤgirlfriend
 
 sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
 
-[rentryㅤext](https://rentry.co/howtolie)
+[rentryㅤext](https://rentry.co/jingling)
 ㅤㅤ(⇀‸↼ ") ..
 ㅤㅤ[twitter](https://twitter.com/princessremover)
 
