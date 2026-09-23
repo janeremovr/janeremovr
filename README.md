@@ -27,8 +27,9 @@ sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
 
 
 
+
 <div align="center">
-  <video src="https://github.com/user-attachments/assets/e746f242-cd6b-4753-b811-ad3f42d67595" width="400" />
+  <video src="https://github.com/user-attachments/assets/5118e030-2e80-472e-b331-49f493572054" width="400" />
 </div>
 
 
