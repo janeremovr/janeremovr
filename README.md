@@ -10,11 +10,11 @@
 
 <div align="center">
 
-janeㅤremover ' sㅤgirlfriend
+janeㅤremover ' sㅤprincessㅤ⑅
 
 sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
 
-[rentryㅤext](https://rentry.co/jingling)
+[atabook](https://taracarpenter.atabook.org/)
 ㅤㅤ(⇀‸↼ ") ..
 ㅤㅤ[twitter](https://twitter.com/princessremover)
 
