@@ -15,6 +15,7 @@
 
 
 
+
 <div align="center">
 
 janeㅤremover ' sㅤprincessㅤ⑅
@@ -33,9 +34,7 @@ sawㅤjaneㅤliveㅤ6 𓈒 13 𓈒 26ㅤ♡
 
 
 
-<div align="center">
-  <video src="https://github.com/user-attachments/assets/bf122abe-30ac-4f86-a936-baf4ef20a593" width="400" />
-</div>
+<p align="center"><img width="600" src="https://github.com/user-attachments/assets/7d056824-46bf-43f8-90c9-8b5283a61e6e"></p>
 
 
 
